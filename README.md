@@ -1,0 +1,1 @@
+# geog572_lab3_taluccia
